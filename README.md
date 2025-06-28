@@ -1,4 +1,4 @@
- Gymlandingpage
+ NOVELNOOK
 
 CLICK HERE TO GO TO THE LIVE WEBSITE https://aniiikettt.github.io/gymlandingpage/
 
